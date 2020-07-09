@@ -1,4 +1,4 @@
-### Hi there 👋
+### I Don't Care.
 
 <!--
 **c0b41/c0b41** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
